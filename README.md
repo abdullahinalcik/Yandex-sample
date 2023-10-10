@@ -1,1 +1,1 @@
-https://abdullahinalcik.github.io/01/
+https://abdullahinalcik.github.io/Yandex-sample/
